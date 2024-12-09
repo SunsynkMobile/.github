@@ -2,7 +2,7 @@
 
 Welcome to Sunsynk, revolutionizing the way we generate, use, and store energy!
 
-![Sunsynk Banner](https://b1425435.smushcdn.com/1425435/wp-content/uploads/2023/02/Sunsynk-Storage-1.jpg?lossy=1&strip=1&webp=1)
+![Sunsynk Banner](https://www.itstechnologies.shop/cdn/shop/files/OPTIMIZE_BACKUP_PRODUCT_1monitoring_0b47c79a-1f93-4f8d-98da-d0478a6a8e0e.webp?v=1730996404)
 
 In a world where energy costs are soaring, and governments are turning to renewables as the ultimate solution, we stand at the forefront of this transformative journey. With Sunsynk, you can be confident that our range of solar storage solutions cater to your specific needs - whether you need a large-scale installation or you’re an individual homeowner, we’re here for you.
 
